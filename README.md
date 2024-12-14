@@ -14,3 +14,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns:Jãlia ...
 - ⚡ Fun fact: sei ingles basico.
 --> 
+ 
